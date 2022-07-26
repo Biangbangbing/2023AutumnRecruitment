@@ -16,12 +16,17 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 # 字节跳动
 
+链接自带内推码
+
 【7月11日-7月31日】[提前批](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
 
 
 
 # 华为
 
+# 深信服
+
+# 
 
 
 # 网易游戏互娱
@@ -31,6 +36,14 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 【7月26日-9月底】[正式秋招](https://game.campus.163.com/m/home?st=ZDI1MjEyMDUtMDEyNi00ZTQwLWJkNTQtYjM1NWI2YzNkZmM4)
 
 
+# 小红书
+
+内推码：TQKTGNFLZ8
+
+【7月19日-9月30日】[正式秋招](https://job.xiaohongshu.com/m/campus)
+
+
 
 # 秋招沟通交流群
+秋招沟通交流群：659921392
 
