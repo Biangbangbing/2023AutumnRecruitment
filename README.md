@@ -90,9 +90,15 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 【9月底】投递链接：  https://app.mokahr.com/m/campus-recruitment/talkweb/71921
 
 
+# 秋招信息汇总文档
+https://xo2rdd8c7t.feishu.cn/sheets/shtcnzWtfIuSyb4uKrUhK7lFolh
 
-
-
+# 秋招信息汇总文档others
+1.https://docs.qq.com/sheet/DWkJxRHp5dW9FcWhv
+2.https://docs.qq.com/doc/DREF6RmhncEV0UUNr?_t=1659949681397u=a13b43c94b244c9bb91588c2ed3c3a8f
+3.https://www.kdocs.cn/l/cbRx7ZkhLAbi?source=zhiqianxueyuan
+4.https://t.1yb.co/ICa1
+5.https://docs.qq.com/sheet/DTnRJREVsVkVuakdz?tab=BB08J2&u=ab6c4350286b4474ab147dc891ecc7c5
 
 
 # 秋招沟通交流群
