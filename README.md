@@ -79,8 +79,6 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 
 
-
-
 # 拓维信息
 
 内推码：DSjy23ZG
@@ -92,6 +90,9 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 # 秋招信息汇总文档
 https://xo2rdd8c7t.feishu.cn/sheets/shtcnzWtfIuSyb4uKrUhK7lFolh
+
+# 秋招进度交流文档
+https://xo2rdd8c7t.feishu.cn/sheets/shtcnedCTRC1KecbtVva8pcJPnh?from=from_copylink
 
 # 秋招信息汇总文档others
 1. https://docs.qq.com/sheet/DWkJxRHp5dW9FcWhv
