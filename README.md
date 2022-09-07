@@ -92,7 +92,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 【】投递链接：https://app.mokahr.com/m/campus_apply/ninebot/45627?recommendCode=DSZruHAN&hash=#/jobs
 
-# 帆软：
+# 帆软
 
 内推码：
 【】投递链接：
@@ -101,6 +101,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 内推码：DSWDWkxH
 【】投递链接：https://app.mokahr.com/m/campus_apply/bolegames/37643?recommendCode=DSWDWkxH#/jobs
 
+------
 
 # 秋招信息汇总文档
 https://xo2rdd8c7t.feishu.cn/sheets/shtcnzWtfIuSyb4uKrUhK7lFolh
