@@ -37,8 +37,6 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 
 
-
-
 # 网易游戏互娱
 
 内推码：RqqdTc
@@ -86,6 +84,22 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 ~~【8月30日】：提前批：https://app.mokahr.com/m/campus-recruitment/talkweb/71921~~
 
 【9月底】投递链接：  https://app.mokahr.com/m/campus-recruitment/talkweb/71921
+
+
+# 9号公司
+
+内推码：DSZruHAN
+
+【】投递链接：https://app.mokahr.com/m/campus_apply/ninebot/45627?recommendCode=DSZruHAN&hash=#/jobs
+
+# 帆软：
+
+内推码：
+【】投递链接：
+
+# 博乐科技
+内推码：DSWDWkxH
+【】投递链接：https://app.mokahr.com/m/campus_apply/bolegames/37643?recommendCode=DSWDWkxH#/jobs
 
 
 # 秋招信息汇总文档
