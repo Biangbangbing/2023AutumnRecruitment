@@ -94,12 +94,26 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 # 帆软
 
-内推码：
-【】投递链接：
+内推码：HNUBY
+
+【】投递链接：https://join.fanruan.com/campus
 
 # 博乐科技
-内推码：DSWDWkxH
+
+内推码：DSWDWkxH 
+
 【】投递链接：https://app.mokahr.com/m/campus_apply/bolegames/37643?recommendCode=DSWDWkxH#/jobs
+
+
+# 基迪奥
+
+内推码：JDA2023BY
+
+【】投递链接：
+
+投递通道1：http://120.24.61.140:8090/delivery/260a163da175de2e4ca586127031f77a
+
+投递通道2：https://jinshuju.net/f/sj05wp
 
 ------
 
