@@ -20,7 +20,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 【7月11日-7月31日】[提前批投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
 
-【月-7月31日】[提前批投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
+【】[秋招投递连接](https://job.toutiao.com/campus/m/position?external_referral_code=S7Z85H7&type=2)
 
 
 
