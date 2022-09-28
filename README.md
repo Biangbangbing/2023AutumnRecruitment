@@ -120,7 +120,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：mzxvfh
 
-投递链接：3treesgroup.zhaopin.com 
+投递链接：http://3treesgroup.zhaopin.com/
 
 ------
 
