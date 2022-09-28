@@ -115,6 +115,13 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 投递通道2：https://jinshuju.net/f/sj05wp
 
+
+# 三棵树
+
+内推码：mzxvfh
+
+投递链接：3treesgroup.zhaopin.com 
+
 ------
 
 # 秋招信息汇总文档
