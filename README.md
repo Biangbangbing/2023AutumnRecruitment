@@ -51,7 +51,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：20718257
 
-~~【8月18日-9月下旬】投递链接：https://careers.midea.com/schoolOut/home ~~
+~~ 8月18日-9月下旬】投递链接：https://careers.midea.com/schoolOut/home ~~
 
 
 
