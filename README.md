@@ -24,12 +24,6 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 
 
-# 华为
-
-【8月30日-9月底】投递链接：
-
-
-
 
 # 网易游戏互娱
 
@@ -43,7 +37,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：TQKTGNFLZ8
 
-~~【7月19日-9月30日】[正式秋招](https://job.xiaohongshu.com/m/campus) ~~
+~~【7月19日-9月30日】[正式秋招](https://job.xiaohongshu.com/m/campus)~~
 
 
 
@@ -51,7 +45,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：20718257
 
-~~ 8月18日-9月下旬】投递链接：https://careers.midea.com/schoolOut/home ~~
+~~8月18日-9月下旬】投递链接：https://careers.midea.com/schoolOut/home~~
 
 
 
@@ -75,7 +69,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：DSjy23ZG
 
-~~【8月30日】：提前批：https://app.mokahr.com/m/campus-recruitment/talkweb/71921 ~~
+~~【8月30日】：提前批：https://app.mokahr.com/m/campus-recruitment/talkweb/71921~~
 
 【9月底】投递链接：  https://app.mokahr.com/m/campus-recruitment/talkweb/71921
 
@@ -96,7 +90,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：DSWDWkxH 
 
-~~【】投递链接：https://app.mokahr.com/m/campus_apply/bolegames/37643?recommendCode=DSWDWkxH#/jobs ~~
+~~【】投递链接：https://app.mokahr.com/m/campus_apply/bolegames/37643?recommendCode=DSWDWkxH#/jobs~~
 
 
 # 基迪奥
