@@ -29,7 +29,7 @@ for 2023秋招信息总览。打破信息壁垒，抓住进厂机会，homie们z
 
 内推码：RqqdTc
 
-~~【7月26日-8月24日】[正式秋招](https://game.campus.163.com/m/home?st=ZDI1MjEyMDUtMDEyNi00ZTQwLWJkNTQtYjM1NWI2YzNkZmM4) ~~
+~~【7月26日-8月24日】[正式秋招](https://game.campus.163.com/m/home?st=ZDI1MjEyMDUtMDEyNi00ZTQwLWJkNTQtYjM1NWI2YzNkZmM4)~~
 
 
 
